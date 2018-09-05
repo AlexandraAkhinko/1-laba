@@ -1,2 +1,2 @@
-# gg
-1
+Alexandra Akhinko
+group 3
